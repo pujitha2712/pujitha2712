@@ -16,7 +16,6 @@
 
 💬 Ask me about **C, C++, Python(https://github.com/pujitha2712/pujitha2712/issues)**
 
-⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
 
  </div>
  
